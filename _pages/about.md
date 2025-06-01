@@ -14,10 +14,11 @@ redirect_from:
 I'm a student based in **Singapore** 🇸🇬 with a passion for creativity and fun!  
 In my free time, you’ll often find me:
 
-📚 **Reading** – Whether it's novels, webtoons, or anything with a good story, I love getting lost in a good read.  
-🧶 **Crocheting** – I enjoy creating cute and cozy things with yarn. It’s my favorite way to unwind.  
+📚 **Reading** – I love getting lost in a good read, whether it is fantasy, YA, mystery, or novels
+🧶 **Crocheting** – I enjoy creating cute and cozy things with yarn. It’s my favorite thing to relax to when I get stressed from my studies 
 🎮 **Gaming** – From chill games to exciting ones, I’m always up for some fun.  
 🍜 **Eating** – I believe good food makes everything better 🍰🍱🍜
+🎧 **Listening to Music** – Music is my constant companion, whether I’m studying, relaxing, or just daydreaming. My favourite genres are rock, pop, and metal!
 
 I'm currently learning and growing every day, and I enjoy connecting with others who share similar interests. Feel free to reach out if you want to talk about games, crafts, or just say hi!
 
